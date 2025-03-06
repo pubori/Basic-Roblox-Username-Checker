@@ -28,4 +28,5 @@ how to use:
 
 4.make an account with one you like
 
-![image](https://github.com/user-attachments/assets/81d0b48b-5648-4ac4-afc8-316d3038f628)
+![image](https://github.com/user-attachments/assets/0510ef24-8ae4-4c37-95cc-00d6950b374b)
+
